@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vivekpatnaikofficial
+- 👀 I’m interested in creative collaborations (Idea improvements, etc) and project management
+- 🌱 I’m currently learning BTech in Computer Science & Systems Engineering
+- 💞️ I’m looking to collaborate on Project Management
+- 📫 How to reach me LinkedIn:www.linkedin.com/in/patnaikuni-vivek Instagram:https://www.instagram.com/vivek.patnaik_official/
